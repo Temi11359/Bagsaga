@@ -1,1 +1,1 @@
-Bagsaga is a trend for stylish and functional bags.
+We provide eadequate and top quality Ankara wears 
