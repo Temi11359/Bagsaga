@@ -1,1 +1,1 @@
-We provide eadequate and top quality Ankara wears 
+We provide adequate and top quality Ankara wears 
